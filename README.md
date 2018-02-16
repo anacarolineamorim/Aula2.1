@@ -1,4 +1,5 @@
 # Aula2.1
 Tony Ramos
-Glória Pires
+Dwayne Johnson
 Claudia Raia
+Mark Wahlberg
